@@ -1,2 +1,2 @@
 # Youtube-UI-Clone
-<a href="![Uploading Youtube UI Clone.png…]()">
+<a href=""C:\Users\Dunna Visal\Pictures\Screenshots\Youtube UI Clone.png"">
